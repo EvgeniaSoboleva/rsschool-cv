@@ -1,12 +1,12 @@
 # Soboleva Evgenia
-## Female, 28 y.o., 13 December 1993
+## Female, 28 years, 13 December 1993
 
 ### +7 (920) 6323483
 ### lus-zhenya@yandex.ru
-### Reside in: Ryazan, Russia
+### Reside in Ryazan, Russia
 * Ready to relocate, ready for business trips
 
-## Work experience —10 years 4 months
+## Work experience >10 years
 * Export Sales manager in ERA LLC (November 2021 — till now)
 * Purchasing Manager in Elamed LLC (November 2020 — November 2021)
 * Purchasing Manager in PK AllMag OOO (July 2015 — November 2020)
