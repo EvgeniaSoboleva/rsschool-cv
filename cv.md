@@ -1,5 +1,5 @@
 # Soboleva Evgenia
-## Female, 28 years, born on 13 December 1993
+## Female, 28 y.o., 13 December 1993
 
 ### +7 (920) 6323483
 ### lus-zhenya@yandex.ru
