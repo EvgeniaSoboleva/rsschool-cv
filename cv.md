@@ -12,9 +12,9 @@
 * Purchasing Manager in PK AllMag OOO (July 2015 — November 2020)
 
 ## Education
-* 2015	Ryazan State University, Ryazan
+* 2015	Ryazan State University, Ryazan, Russia
     * Institute of Foreign Languages, Teacher of English and German
-* 2015	Ryazan State University, Ryazan
+* 2015	Ryazan State University, Ryazan, Russia
     * Institute of Foreign Languages, Translator
 
 ## Key skills
